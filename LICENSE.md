@@ -1,4 +1,4 @@
-
+break a brainrot egg premium Scripts offers the most advanced break a brainrot egg Script, with no cooldown and invisibility. Perfect for dominating
 
 
 
